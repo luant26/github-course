@@ -16,6 +16,3 @@ dsoadsadadsadsadsa
 
 Outros cursos em : [willian justen cursos](http://willianjusten.teachtable.com)
 
-
-alterção para comitar
-
